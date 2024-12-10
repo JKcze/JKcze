@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JKcze
+- 👀 I’m interested in everthing that involves logic and science hidden within 
+- 🌱 I’m currently learning 
